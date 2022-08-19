@@ -1,11 +1,9 @@
 # I-Am-Reborn-As-The-Sword-God
-# H1 
-I Am Reborn As The Sword God
+# I Am Reborn As The Sword God
 ***
-# H1 
-I Am Reborn As The Sword God manga
+# I Am Reborn As The Sword God manga
 ***
-<img src="https://www.mangalilo.com/manga/i-am-reborn-as-the-sword-god/" />
+<img src="i-am-reborn-as-the-sword-god-193x278.png" />
 
 # Introduction
 I Am Reborn As The Sword God is a Manga/Manhwa/Manhua in (English/Raw) language,
